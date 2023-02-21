@@ -1,0 +1,9 @@
+2 nice but not too soft Avocados
+8 cocktail tomatos
+1 fresh limette (use all juice and scrape 1/3 of the peel)
+2 spoons of brown sugar
+2 tea spoons of smoked salt
+2 mid sized garlic pieces
+2 nice fresh fine-cut chillis (pits removed)
+1 small fine chopped red onion
+some mixed pepper
