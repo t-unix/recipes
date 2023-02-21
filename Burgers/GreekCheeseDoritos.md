@@ -1,8 +1,8 @@
-Bun
-Chilli Mayonese
-A nice layer of Doritos
-Little Ketchup
-Fine cut fresh red chilli
-2 slices of grilled Halumi
-Uncut grilled and pickeled red pepper
-Bun
+- Bun
+- Chilli Mayonese
+- A nice layer of Doritos
+- Little Ketchup
+- Fine cut fresh red chilli
+- 2 slices of grilled Halumi
+- Uncut grilled and pickeled red pepper
+- Bun
